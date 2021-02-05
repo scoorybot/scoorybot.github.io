@@ -1,4 +1,4 @@
+# قناتي يوتيوب http://www.youtube.com/channel/UC5GsgTm_OeAEWJRHZ32VQGg
+# قناتي يوتيوب فقط اكتب في البحث فريم بالعربي 
  # اذا جاتك مشكلة كلمني في سيرفري  discord.gg/daR9baYngX
- # اذا جاتك مشكلة كلمني في سيرفري  discord.gg/daR9baYngX
-
-# قناتي يوتيوب 
+ # سيرفري حق مبرمجين ومصممين   discord.gg/daR9baYngX
